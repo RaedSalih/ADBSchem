@@ -1,0 +1,1 @@
+The contents of this ADB-MAS project will be avaliable  15 October 2018.
